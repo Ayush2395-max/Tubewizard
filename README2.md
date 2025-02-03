@@ -16,7 +16,7 @@ Tired of wasting hours summarizing YouTube videos? **TubeWizard AI software tool
 ✅ **Zero monthly fees** – pay once, use forever  
 ✅ **Works with ChatGPT, Claude, or Gemini** (no API keys!)  
 ✅ **Generate checklists, summaries & content frameworks**  
-
+##[ Click Here](https://warriorplus.com/o2/a/vtmgzq8/0)
 **Save 10+ hours weekly** – turn video research into publish-ready content instantly.  
 
 ---
@@ -34,7 +34,7 @@ Tired of wasting hours summarizing YouTube videos? **TubeWizard AI software tool
 ## 🛠️ **Getting Started**  
 ### **Installation**  
 1. **Add to Chrome**:  
-   [Install the TubeWizard AI Chrome Extension]((https://warriorplus.com/o2/a/vtmgzq8/0)).  
+   [Install the TubeWizard AI Chrome Extension](ClickHere(https://warriorplus.com/o2/a/vtmgzq8/0)).  
 2. **Activate License**:  
    Enter your license key after purchase.  
 3. **Start Creating**:  
