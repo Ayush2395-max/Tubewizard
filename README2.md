@@ -34,7 +34,7 @@ Tired of wasting hours summarizing YouTube videos? **TubeWizard AI software tool
 ## 🛠️ **Getting Started**  
 ### **Installation**  
 1. **Add to Chrome**:  
-   [Install the TubeWizard AI Chrome Extension](ClickHere(https://warriorplus.com/o2/a/vtmgzq8/0)).  
+   [Install the TubeWizard AI Chrome Extension](https://warriorplus.com/o2/a/vtmgzq8/0)).  
 2. **Activate License**:  
    Enter your license key after purchase.  
 3. **Start Creating**:  
